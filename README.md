@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **rm16mandloi@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1-ONXmygc2zzphia8U7Uhg32LUWQe8nqL/view?usp=sharing](https://drive.google.com/file/d/1-ONXmygc2zzphia8U7Uhg32LUWQe8nqL/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
