@@ -7,7 +7,7 @@
 
 - 💬 My Linkedin Profile **https://www.linkedin.com/in/rupeshmandloi/**
 
-- 📫 How to reach me **rm16mandloi@gmail.com**
+- 📫 How to reach me **rupeshmandloi83@gmail.com**
 
 
 <h3 align="left">Connect with me:</h3>
